@@ -1,2 +1,2 @@
-# GimKit-Cheats
-yes gimkit hax
+#fun
+:)
